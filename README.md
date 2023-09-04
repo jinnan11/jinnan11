@@ -8,6 +8,6 @@
 
 ---
 
-主站：[点击查看](https://jn11.eu.org/)
+* 主站：[点击查看](https://jn11.eu.org/)
 
-备用：[点击查看](https://www.123pan.com/s/hvZDVv-cKgxH.html)
+* 备用：[点击查看](https://www.123pan.com/s/hvZDVv-cKgxH.html)
