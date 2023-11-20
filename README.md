@@ -1,4 +1,4 @@
-* 槿南的个人主页：[点击查看](https://jinnan11.eu.org)
+* 槿南的个人主页：[点击查看](https://jinnan11.repl.co)
 
 * 槿南资源站：[点击查看](https://jn11.eu.org)
 
